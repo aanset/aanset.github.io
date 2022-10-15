@@ -13,4 +13,4 @@ I am is what I am now.
 
 ### Want to connect?
 
-Feel free to contact me [here](mailto:andry.setiawan@bawean.id)
+Feel free to contact me [here](mailto:aanset@e.email)
